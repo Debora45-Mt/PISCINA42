@@ -1,2 +1,0 @@
-# PISCINA42
-AJUDA
